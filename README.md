@@ -1,4 +1,4 @@
-# Hi, I'm Ray Singh — NYC's Headshot Specialist 📸
+# Hi, I'm Ray Singh — NYC's Headshot Specialist
 
 Welcome! I’m a **professional Headshot Photographer based in Midtown Manhattan, NYC**, specializing in:
 
